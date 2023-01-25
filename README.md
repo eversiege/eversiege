@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+_"You look like a ballsack of a Terraria character" - @Coopydood_
+
 I sure am a person.
 
 <!--
