@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+> _This profile is guest-friendly. Vandalize away._
+
 _"You look like a ballsack of a Terraria character" - Coopydood_
 
 I sure am a person.
