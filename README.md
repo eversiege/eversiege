@@ -3,6 +3,10 @@
 _"You look like a ballsack of a Terraria character" - Coopydood_
 
 I sure am a person.
+Not just any person.
+A mental Ukrainian.
+
+<!-- This bio was infected by Coopydood -->
 
 <!--
 **eversiege/eversiege** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
