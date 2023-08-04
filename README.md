@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-> _This profile is guest-friendly. Vandalize away._
+> _This profile is guest-friendly. Vandalize away. Unfortunately only way to do so now it pushing push requests. But I will make sure all of them (except offensive and NSFW) will make it here._
 
 _"You look like a ballsack of a Terraria character" - Coopydood_
 
