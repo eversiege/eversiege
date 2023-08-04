@@ -8,7 +8,7 @@ _"You look like a ballsack of a Terraria character" - Coopydood_
 
 9/11 - Sawrams
 
-Subscribe to this shitpost in tg:@eversiegetrash
+Im Fucking Mental - Sawrams
 
 I sure am a person.
 Not just any person.
