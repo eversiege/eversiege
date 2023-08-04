@@ -6,10 +6,13 @@ _"You look like a ballsack of a Terraria character" - Coopydood_
 
 9/11
 
+Subscribe to this shitpost in tg:@eversiegetrash
+
 I sure am a person.
 Not just any person.
 A mental Ukrainian.
 
+> _sawrams has been there_
 <!-- This bio was infected by Coopydood -->
 
 <!--
