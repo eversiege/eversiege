@@ -10,11 +10,15 @@ _"You look like a ballsack of a Terraria character" - Coopydood_
 
 Im Fucking Mental - Sawrams
 
+who the hell is Sawrams?
+
 I sure am a person.
 Not just any person.
 A mental Ukrainian.
 
 > _sawrams has been here_
+>
+> Certified Coopydood lover
 <!-- This bio was infected by Coopydood -->
 
 <!--
