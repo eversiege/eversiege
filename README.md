@@ -12,6 +12,8 @@ Im Fucking Mental - Sawrams
 
 who the hell is Sawrams?
 
+instructions unclear - dick stuck in toaster?? call eversiege today!!1!
+
 I sure am a person.
 Not just any person.
 A mental Ukrainian.
