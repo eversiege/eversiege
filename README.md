@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-> _This profile is guest-friendly. [Vandalize away.](https://github.com/eversiege/eversiege/edit/main/README.md) Unfortunately only way to do so now is pushing push requests. But I will make sure all of them (except offensive and NSFW) will make it here._
+> _This profile is guest-friendly. [Vandalize away.](https://github.com/eversiege/eversiege/edit/main/README.md) Unfortunately only way to do so now is pushing push (isnt it supposed to be "pull", smooth brain?) requests. But I will make sure all of them (except offensive and NSFW) will make it here._
 
 <!-- PLEASE LEAVE YOUR NAME WHEN DONE!-->
 
@@ -11,6 +11,8 @@ _"You look like a ballsack of a Terraria character" - Coopydood_
 Im Fucking Mental - Sawrams
 
 who the hell is Sawrams?
+
+instructions unclear - dick stuck in toaster?? call eversiege today!!1!
 
 I sure am a person.
 Not just any person.
