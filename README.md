@@ -14,6 +14,10 @@ who the hell is Sawrams?
 
 instructions unclear - dick stuck in toaster?? call eversiege today!!1!
 
+instructions unclear, i bombed github servers - sawrams
+
+Somebody fuck me - eversiege
+
 I sure am a person.
 Not just any person.
 A mental Ukrainian.
