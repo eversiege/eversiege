@@ -29,9 +29,10 @@ A mental Ukrainian.
 > Certified Coopydood lover
 <!-- This bio was infected by Coopydood -->
 
-"Someone send me 1 USD for Enderman Tier 3 sub
-[...]
-GUYS I WAS JUST KIDDING" - eversiege
+![1](https://rozbrajacz.futbol/permanent/eversiege-1.png)
+![paypal](https://rozbrajacz.futbol/permanent/eversiege-paypal.png)
+![2](https://rozbrajacz.futbol/permanent/eversiege-2.png)
+![eversiege](https://rozbrajacz.futbol/permanent/eversiege-doit.png)
 
 
 <!--
