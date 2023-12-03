@@ -29,6 +29,11 @@ A mental Ukrainian.
 > Certified Coopydood lover
 <!-- This bio was infected by Coopydood -->
 
+"Someone send me 1 USD for Enderman Tier 3 sub
+[...]
+GUYS I WAS JUST KIDDING" - eversiege
+
+
 <!--
 **eversiege/eversiege** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
