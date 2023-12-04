@@ -18,6 +18,8 @@ instructions unclear, i bombed github servers - sawrams
 
 Somebody fuck me - eversiege
 
+"PLEASEEEEEE FUCK MEE" - eversiege.me
+
 You are the one that got me into ArcOS - [Nik Nikovsky] (https://github.com/NikNikovsky)
 
 I sure am a person.
