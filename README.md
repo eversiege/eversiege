@@ -28,6 +28,8 @@ You are the one that got me into ArcOS - [Nik Nikovsky] (https://github.com/NikN
 
 ывфывшый21212 - helloryuko
 
+did you know that pizzas are great but 9/11 was terrible - sdzkhelince
+
 I sure am a person.
 Not just any person.
 A mental Ukrainian.
