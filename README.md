@@ -24,7 +24,7 @@ Somebody fuck me - eversiege
 
 "PLEASEEEEEE FUCK MEE" - eversiege.me
 
-You are the one that got me into ArcOS - [Nik Nikovsky] (https://github.com/NikNikovsky)
+You are the one that got me into ArcOS - [Nik Nikovsky](https://github.com/NikNikovsky)
 
 ывфывшый21212 - helloryuko
 
